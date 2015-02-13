@@ -1,1 +1,1 @@
-# HairKing
+# HairKing.com
